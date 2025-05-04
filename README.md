@@ -1,0 +1,1 @@
+# Ayse_Nur_Ozer_Haafta2_3_Odev
